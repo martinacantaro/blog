@@ -8,6 +8,7 @@
 - Berta Cáceres (environmental activist)
 - The scientists covered by "Científicas de Acá"
 - Amparo Dávila
+- Elsa Bornemann
 
 ## Also for:
 
